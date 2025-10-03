@@ -1,1 +1,4 @@
-# the-dark-magician-transmigrates-after-66666-years
+# The Dark Magician Transmigrates After 66666 Years
+<66,666 Years: Advent of the Dark Mage>
+
+Diablo Volpir, un puissant magicien, a été scellé par douze dieux il y a de cela 66 666 ans. Réussissant à s’échapper de sa prison, il s’est réincarné dans le corps du fils d’un comte, Jamie Welton. Désormais âgé de 9 ans, il entreprend d’aiguiser ses compétences magiques afin de se venger de ses tortionnaires divins. Sauf qu’un jour, contre toute attente, son père autorise la religion de Zenith à s’établir sur leur territoire. Sachant que Zenith n’est autre que l’un des ennemis jurés de Jamie, le jeune magicien décide alors d’enquêter. Dans cette nouvelle vie, réussira-t-il à assouvir sa vengeance ? Pour ainsi prouver qu’il est le meilleur mage.
